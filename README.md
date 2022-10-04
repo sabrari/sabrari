@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @sabrari
 - 👀 I’m interested in...you ;)
 - 🌱 I’m currently learning ...you ;)
-- 💞️ I’m looking to collaborate on ...you ;)
+- 💞️ I’m looking to collaborate with ...you ;)
 - 📫 How to reach me ...9142069666
 
 <!---
